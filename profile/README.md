@@ -7,9 +7,9 @@
 이제 브로큰 영상 고;화;질 다시;보기 히든페이스 F𝚞ll 무료 재방송 볼수 있는곳 ~
 
 
-#### [👉👉[[영화]]브로큰~ 클릭보기!](htt𝚙s://t.co/7gWEZtcMvx)
+<h3><a href="https://t.co/7gWEZtcMvx">👉👉[[영화]]브로큰~ 클릭보기!</a></h3>
 
-[![watch_full_movie](https://image.tmdb.org/t/p/w300/kgSFFG6HbyzSHOZCwf03iwokDhW.jpg)](htt𝚙s://t.co/7gWEZtcMvx)
+[![watch_full_movie](https://image.tmdb.org/t/p/w300/kgSFFG6HbyzSHOZCwf03iwokDhW.jpg)](https://t.co/7gWEZtcMvx)
 
 
 
